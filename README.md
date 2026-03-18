@@ -1,1 +1,9 @@
-# Creating
+# KONIEC !!! SUKCES !!!!
+
+
+
+GRATULACJE!!!
+
+
+
+ZBIERZ I ZAPISZ WSZYSTKO DO KUPY!!!!
